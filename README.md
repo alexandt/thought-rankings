@@ -1,1 +1,1 @@
-# thought-rankings
+#thought-rankings
